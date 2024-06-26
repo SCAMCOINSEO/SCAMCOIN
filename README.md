@@ -1,0 +1,2 @@
+# SCAMCOIN
+This is SCAM)
