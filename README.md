@@ -1,2 +1,2 @@
-# SCAMCOIN
+# Sbhbh
 This is SCAM)
